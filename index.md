@@ -1,5 +1,5 @@
 # Privacy Policy for Capital Forecast
-**Last Updated: April 2026**
+**Last Updated: May 2026**
 
 Capital Forecast is committed to protecting your privacy. This policy explains how we handle data.
 
